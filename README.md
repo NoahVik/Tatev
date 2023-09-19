@@ -28,10 +28,11 @@ Gentle breeze shifts mind back to eyes
 Amidst the Vines,Here again a Tendril catches my eyes
 Lost again iam in Hair Locks that eclipses her eyes
 ```
+```
 Oh Divine, Let her read these words of mine !!!
-..............................
-......................
-
+....
+.....
+```
 ```
 Sudden Thunder stirs calm of my mind, Dark clouds dawn on golden sky
 Mild rain drops dawn upon her dark round eyes,The sight moisten my eyes
